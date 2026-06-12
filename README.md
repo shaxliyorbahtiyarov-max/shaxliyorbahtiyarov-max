@@ -1,4 +1,4 @@
-## QAHHOROV MUHAMMAD 👋
+## 𝐐𝐀𝐇𝐇𝐎𝐑𝐎𝐕 𝐌𝐔𝐇𝐀𝐌𝐌𝐀𝐃 👋
 
 <!--
 **shaxliyorbahtiyarov-max/shaxliyorbahtiyarov-max** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
